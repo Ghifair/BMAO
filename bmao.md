@@ -1,0 +1,7 @@
+## from the author
+
+some of this writing is a true story that happened. the story that will be written is an imaginary creation from the author's perspective. due to differences in living conditions or privilege the author feels that there will be a sense of disconnection with the characters whose stories will be written. even so, the author will try to make stories that are believable and have a connection with the reader. thank you for reading.
+
+# 1 Introduction
+
+born in the suburbs of the capital city, 2 brothers lived in a 7x7 m rental house. they lived with their parents, the mother worked at an electronic goods counter in a mall downtown, the mall eventually died because credit was no longer popular. the mall wasn't bad, it felt like a better traditional market, there was air conditioning although it wasn't very cold. fake, cheap, pirated, maybe even stolen goods were sold. in the heyday of thick cellphones, the mall would be full on weekends, it was prone to pickpockets. people would bargain like crazy. in those days everyone was into piracy, people would buy music tapes, popular movies on compact disks, they said movie theaters were only for the rich. it was so cheap that sometimes the escalators weren't turned on and people would still be grateful if the toilet faucet could flush.
